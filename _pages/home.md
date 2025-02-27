@@ -18,16 +18,7 @@ Friday & Saturday: 10am - 5pm
 
 Sunday & Monday: closed
 
-*Note special January hours below*
-
-
-# Winter hours and time off
-
-For the month of January we’ll be open slightly limited hours: Tuesday through Saturday, noon to 5pm. Send us an email at info@laughingdogbicycles.com if you need us outside of those times and we’ll do our best to accommodate.
-
-In addition, we’ll be taking a little break in the middle of January. The shop will be CLOSED from January 15th to 22nd, reopening 1/23/25.
-
-Happy new year, and remember, winter is a great time to get your bike overhauled for spring riding or bring us that dusty project you’ve been putting off!
+As of Tuesday, March 4th, we'll be back to our regular hours.
 
 <br>
 
