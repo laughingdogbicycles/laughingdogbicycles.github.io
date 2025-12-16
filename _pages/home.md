@@ -18,6 +18,16 @@ Friday & Saturday: 10am - 5pm
 
 Sunday & Monday: closed
 
+**Winter Schedule:
+**
+
+We will be closed December 25 and January 1. We'll close at 2pm on December 24. 
+
+Starting December 26 and lasting through February, we'll go into our winter hours of operation:
+
+Tuesday - Saturday: noon - 5pm
+
+If you need us outside of those hours, send us an email and we'll do our best to accommodate. We'll also probably take a break and get out of town for a week in February - you should too. Looks like we're in for a long winter! Dates will be posted when we know them.
 <br>
 
 # Contact
