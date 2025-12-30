@@ -34,3 +34,4 @@ For the bikes we have available, check out the websites of the brands we carry.
 * [Surly](https://surlybikes.com/)
 * [Soma](https://www.somafab.com/)
 * [All City Cycles](https://allcitycycles.com/)
+* [Woom](https://woom.com/en_US/)
