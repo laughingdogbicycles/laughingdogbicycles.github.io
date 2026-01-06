@@ -6,7 +6,5 @@ main:
     url: /service/
   - title: "Buy a Bike"
     url: /bikes/
-  - title: "Rentals"
-    url: /rentals/
   - title: "History"
     url: /history/
